@@ -13,8 +13,8 @@ You can use any pronouns for me.
 
 🥕 ༘⋆ Javascript
  
-🥕 ༘⋆ Illustration & Graphic Design
-݁
+🥕 ༘⋆ Illustration & Graphic Desig݁n
+
 🥕 ༘⋆ . . . Hopefully many more!
 
 
